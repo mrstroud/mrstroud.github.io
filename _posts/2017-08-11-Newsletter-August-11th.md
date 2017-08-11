@@ -15,6 +15,7 @@ Daily Binder-This should go home and come back to school each day. This contains
 
 Our fundraiser begins TODAY! Order deadline is **Tuesday, September 5th**. Delivery of these items will be during conferences on Tuesday, October 10th and Thursday, October 12th. 
 
+
 Thanks for selling!
 
 **All Pro Dads**
@@ -48,37 +49,52 @@ Remind is the service that I use to communicate important information to you. If
 
 Text @mrstroud17 to (317) 661-4024.
 Email mrstroud17@mail.remind.com
-http://www.remind.com/join/mrstrouds
+[Link](http://www.remind.com/join/mrstrouds "Remind")
 
 ***Content and Skills***
 
 **Reading**
 
 The One and Only Ivan, Where the Wild Things Are
+
 Genres of Literature
+
 Response to Literature
+
 Reader's Workshop Behaviors: Annotating our Reading, Places Worth Stopping, Setting Goals
+
 What is a Story?: Unit Introduction
+
 Reading Comprehension Practice
 
 **Writer's Workshop** 
 
 Structure of Writer's Workshop
+
 Sustained Writing
+
 Prewriting/Planning
+
 Drafting
+
 Revising
+
 Important/Special Moments
+
 Types of Sentences: Declarative, Interrogative, Imperative, Exclamatory
 
 **Math** 
 
 Writing Numbers: Place and Value Written and Representations
+
 Math Journal Work
+
 Place value to one billion
+
 Problem of the Week: Handshakes
 
 **Social Studies**
 
 How do we define communities?
+
 Where do we live? What defining traits make our communities the same/different?
