@@ -1,6 +1,7 @@
-___
-type: posts
+---
+layout: post
 title: Newsletter August 11th, 2017
+---
 
 **Citizenship**
 
