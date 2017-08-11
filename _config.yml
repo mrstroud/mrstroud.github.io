@@ -2,9 +2,9 @@
 permalink:           pretty
 
 # Setup
-title:               Ryan Stroud
+title:               Mr. Stroud
 tagline:             
-url:                 http://ryanstroud.github.io
+url:                 http://mrstroud.github.io
 paginate:            1
 baseurl:             ""
 
@@ -19,7 +19,7 @@ sass:
 author:
   name:              Ryan Stroud
   url:               https://twitter.com/ryanstroud
-  email:             ryanstroud@gmail.com
+  email:             ryan.stroud@wayne.k12.in.us
 
 # Custom vars
 version:             2.0.0
