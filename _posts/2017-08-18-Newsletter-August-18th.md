@@ -1,4 +1,4 @@
- ---
+---
 layout: post
 title: Newsletter August 18th, 2017
 ---
