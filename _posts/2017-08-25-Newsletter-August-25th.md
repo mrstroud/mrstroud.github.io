@@ -1,8 +1,3 @@
-___
-layout: post
-title: Newsletter August 25th, 2017
-___
-
 **Picture Day**
 
 Picture day will be on **Thursday, September 7th.** Fliers went home today. You may choose to order online or send in the envelope with your child.
