@@ -2,6 +2,7 @@ ___
 layout: post
 title: Newsletter August 18th, 2017
 ___
+
 **Amazing Start**
 
 I’m thrilled with how hard your children have worked this week. We added Chromebooks to our routines, explored fluency as readers, learned to think flexibly about numbers, and more.
