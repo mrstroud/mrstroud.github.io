@@ -4,7 +4,7 @@ We will not be in session on Monday, September 7th in observance of Labor day. P
 
 ** Learning Garden-Please Read**
 
-On **Friday, September 6th** our students will help out with our new Learning Garden. Please have them wear old clothes as we work and they likely will get very dirty.
+On **Wednesday, September 6th** our students will help out with our new Learning Garden. Please have them wear old clothes as we work and they likely will get very dirty.
   
 Find out more about the learning garden at [The Kitchen Community](https://thekitchencommunity.org "The Kitchen Community")
 
