@@ -1,5 +1,3 @@
-**Newsletter September 1st**
-
 **Midterms**
 
 Midterms went home with your child today. Please sign and return on Monday. If you have any questions, please let me know.
