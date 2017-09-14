@@ -18,7 +18,7 @@ We already started working on computer programming (or coding) by talking about 
 
 Next week, we will begin our “Number Sense Transformation” project. Students will use their knowledge of place value and will research different numbering systems to transform numbers. Format will be your child’s choice: poster, Google Presentation, video, and more. 
 
-This project will begin on **Monday, September 11th** and will be due on **Friday, September 15th.** Your child will have time to work on this in class and will have the opportunity to work at home as well.
+This project will begin on **Monday, September 11th** and will be due on **Friday, September 22nd.** Your child will have time to work on this in class and will have the opportunity to work at home as well.
 
 I will send out more information next week through Remind.
 
