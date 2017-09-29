@@ -1,12 +1,15 @@
 **Hurricane Relief Fundraiser**
+
 Thanks for all of your help with the hurricane fundraiser. We raised over $900! The best part is that I will get a pie in the face!
 
 **Conferences**
+
 Conferences will be in a few weeks. Your child is expected to attend with you as they will help lead.
   
 Next week, I’ll send home a reminder of your conference time. If we need to reschedule, I will be in touch with you!
 
 **Number Form Transformation Project**
+
 If this is not finished, please have your child turn in by MONDAY!
 
 **Assignment Notebooks** 
