@@ -1,12 +1,15 @@
 **Conferences**
+
 Conferences will be next week. Your child is expected to attend with you as they will help lead.
 
 Please let me know if you have a question about your child’s time.
 
 **Grades**
+
 Grades should be final by Monday as I finish grading late work.
 
 **Fall Break**
+
 Fall break will begin after next **Friday, October 13th** and will run until **Friday, October 27th**. We will resume school on **Monday, October 30th!**
 
 **Assignment Notebooks** 
