@@ -1,5 +1,4 @@
 **Conferences**
-
 Conferences will be next week. Your child is expected to attend with you as they will help lead.
 
 Please let me know if you have a question about your child’s time.
