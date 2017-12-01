@@ -20,6 +20,10 @@ Next week, we will visit PTO’s Santa Shop. This is an opportunity for students
   
 We shop on **Tuesday, December 5th.** PTO is asking that you send no more than $30 so other students can shop.
 
+**Candy Cane Sales**
+
+Beginning the week of **December 11th,** we will begin our annual candy cane sales to help pay for our Camp Tecumseh trip. Students may send candy canes to anyone and the cost is $0.50 per candy cane. The red form that went home today has two attached candy cane grams. Students may get more of these during the week of **December 11th.**
+
 **Camp Tecumseh Volunteering**
 
 If you are interested in chaperoning our Camp Tecumseh trip on May 16th and 17th, please fill out the GREEN FORM and send it back with your child. Chaperones will need to pay the $60 fee as well. 
