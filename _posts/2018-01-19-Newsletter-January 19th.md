@@ -1,5 +1,3 @@
-# Newsletter January 19
-
 **Calling All Winter Carnival Volunteers**
   
 We are still in need of volunteers! Robey’s annual Winter Carnival will be on **Friday, January 26th** from **6-8:30 P.M.** We need volunteers to make this happen. If you can spare some time, please visit [[][] http://signup.com/go/DChYvUy ](http://signup.com/go/DChYvUy "Signup.com") to grab a slot. 
