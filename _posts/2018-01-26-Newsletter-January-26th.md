@@ -10,6 +10,10 @@ Would you like to learn more about the upcoming ISTEP and IREAD tests? Looking f
   
 We’ll cover dates, general information, test prep, and more. Looking forward to seeing you there!
 
+**Yearbook Orders**
+
+Yearbook order forms went home tonight. The prepay cost is **$18** and checks can be made out to Robey Elementary. Please make sure you write your child's name on the check!
+
 **Camp Tecumseh Updates and Volunteering**
 
 Camp is only a few short months away! Remember- **$60 camp fee** will need to be paid. If you would like to go ahead and pay now, or pay in increments, please do so. 
