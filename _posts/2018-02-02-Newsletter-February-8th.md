@@ -44,7 +44,7 @@ Remind is the service that I use to communicate important information to you. If
 
 Text @mrstroud17 to (317) 661-4024.
 Email mrstroud17@mail.remind.com
-[Sign Up for Remind](#)(https://remind.com/join/mrstroud17 "Sign Up for Remind")
+[Sign Up for Remind)(https://remind.com/join/mrstroud17 "Sign Up for Remind")
 
 ### Content and Skills
 
