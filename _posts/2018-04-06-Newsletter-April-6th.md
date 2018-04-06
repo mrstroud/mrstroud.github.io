@@ -4,7 +4,7 @@ The Indiana Department of Natural Resources is giving every third grader the opp
 
 If your family would like to participate, please return the pink form as soon as possible!
 
-Trees will go home on April 17th. 
+Trees will go home on **April 17th.** 
 
 **Camp Tecumseh Updates and Volunteering**
 
